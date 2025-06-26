@@ -27,7 +27,7 @@
 
 点击访问：<a href="https://chigua343.pages.dev/">51吃瓜今日吃瓜入口热门事件在线吃瓜网站</a>
 
-点击访问：<a href="https://heiliao376.pages.dev//">黑料吃瓜资源今日黑料</a>
+点击访问：<a href="https://heiliao376.pages.dev/">黑料吃瓜资源今日黑料</a>
 
 点击访问：<a href="https://heiliao927.pages.dev/">黑料不打烊万里长征官网黑料传送门不迷路</a>
 
